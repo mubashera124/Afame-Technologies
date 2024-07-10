@@ -1,0 +1,2 @@
+# Afame-Technologies
+DATA ANALYST INTERNSHIP PROJECT
